@@ -1,0 +1,1 @@
+# shti-text-result-pics-pro
